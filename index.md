@@ -3,5 +3,6 @@
 
 # January 21st 2022
 
-Today's courses were quite dull.
+Today's courses were quite dull. 
+Aussi, Lina pue.
 
